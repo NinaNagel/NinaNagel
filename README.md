@@ -2,7 +2,7 @@
 - 👀 I’m interested in Volleyball
 - 🌱 I’m currently learning  Wirtschaftswissenschaften
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me nagelnina00@gmail.com
 - ⏰  Meine Lieblingsuhrzeit ist 11 Uhr
  <!---
 NinaNagel/NinaNagel is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
