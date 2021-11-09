@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NinaNagel
 - 👀 I’m interested in Volleyball
 - 🌱 I’m currently learning  Wirtschaftswissenschaften
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on an einem Projekt
 - 📫 How to reach me nagelnina00@gmail.com
 
  <!---
